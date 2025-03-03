@@ -27,9 +27,9 @@ Link Alternatif Aw8Slot
 
 Jika Anda mengalami kendala dalam mengakses situs utama **Aw8Slot**, kami menyediakan beberapa **link alternatif Aw8Slot** untuk memastikan Anda dapat terus menikmati hiburan kami tanpa gangguan. Berikut adalah beberapa **link alternatif** yang dapat digunakan:
 
-*   [Link Alternatif Aw8Slot 1](https://app.z456win.com/?dl=$3mibj9$IDR$2)
-*   [Link Alternatif Aw8Slot 2](https://app.z456win.com/?dl=$3mibj9$IDR$2)
-*   [Link Alternatif Aw8Slot 3](https://app.z456win.com/?dl=$3mibj9$IDR$2)
+*   [Link Alternatif Aw8Slot 1](https://dub.sh/aw8-slot)
+*   [Link Alternatif Aw8Slot 2](https://dub.sh/aw8-slot)
+*   [Link Alternatif Aw8Slot 3](https://dub.sh/aw8-slot)
 
 ### Cara Menggunakan Link Alternatif
 
